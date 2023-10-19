@@ -1,1 +1,1 @@
-![github-header-image](https://github.com/gohopventure/gohopventure/assets/28074009/c24a0c31-374f-4fd0-b819-b324e91e2e53)
+![github-header-image](https://github.com/gohopventure/gohopventure/assets/28074009/2a18b62c-77d9-40da-87f5-8251923fab58)
